@@ -1,0 +1,1 @@
+![](_assets/Pasted%20image%2020251230112506.png)
